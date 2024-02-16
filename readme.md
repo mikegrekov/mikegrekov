@@ -1,1 +1,1 @@
-### Mike Grekov, nice to see you on my GitHub page
+### I am Mike Grekov, nice to see you Friend on my GitHub page
